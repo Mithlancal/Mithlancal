@@ -1,5 +1,5 @@
-##Prince Kumar Jha
-#Failure was never an option for me 🥰.
+## Prince Kumar Jha
+# Failure was never an option for me 🥰.
 - 👋 Hi, I’m @Mithlancal
 - 👀 I’m interested in learning new things.
 - 😊 My strength are adaptability and c++.
