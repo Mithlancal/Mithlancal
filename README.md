@@ -8,3 +8,5 @@
 - 💞️ I’m looking to collaborate on projects with real learning experience.
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: i like to explore things and pepole but still i am shy with them.
+- ☠️ currently giving university exam
+- 
